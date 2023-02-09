@@ -31,3 +31,16 @@ Older kids and teens may also use their phones to plan group schoolwork
 how is he supposed to keep on schoolwork when he's out? 
 
 bottom line: pro
+
+
+CHATGPT:
+As a teenager, having a phone has become an essential part of daily life. It not only provides a means of communication with friends and family but also offers access to a world of information and entertainment. For this reason, I believe that my teenaged friend deserves to receive a phone.
+
+Firstly, having a phone provides a sense of independence and responsibility. Teenagers are at an age where they are developing their identity and exploring the world around them. A phone allows them to communicate with others, manage their own schedules, and access the resources they need to succeed. By giving them a phone, you are demonstrating your trust in their ability to use it responsibly and make informed decisions. This can foster a sense of confidence and independence, which is important in helping teenagers grow into mature and responsible adults.
+
+Secondly, a phone can help in emergency situations. In today's world, it is important for teenagers to have access to immediate help when they need it. Whether it is calling for help in an emergency or simply having a means of communication with parents and friends, a phone can be a lifesaver. This peace of mind for both the teenager and their family is invaluable.
+
+Finally, a phone provides a means of connection with friends and family. In an age where social media and instant messaging have become a staple in communication, having a phone is crucial for staying in touch with those who matter most. This can help foster strong relationships and provide a source of support when needed.
+
+In conclusion, giving a phone to a teenager is a smart investment in their future. It provides a sense of independence, responsibility, and connection with friends and family. I believe that my teenaged friend deserves to receive a phone to help them navigate this exciting and challenging time in their lives.
+
