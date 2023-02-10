@@ -28,9 +28,13 @@ dating: how is roan supposed to ask for someone's number, if he doesn't himself?
 
 Older kids and teens may also use their phones to plan group schoolwork
 
-how is he supposed to keep on schoolwork when he's out? 
+how is he supposed to keep on schoolwork when he's out? or what if, considering how unreliable our school wifi is, the wifi goes out? that's already happened multiple times this year, and since he doesn't have a sim, he can't do any work
 
 bottom line: pro
+
+manage schedules while on the go, online
+
+informed decisisions, he can google stuff, prices while out
 
 
 CHATGPT:
@@ -43,4 +47,8 @@ Secondly, a phone can help in emergency situations. In today's world, it is impo
 Finally, a phone provides a means of connection with friends and family. In an age where social media and instant messaging have become a staple in communication, having a phone is crucial for staying in touch with those who matter most. This can help foster strong relationships and provide a source of support when needed.
 
 In conclusion, giving a phone to a teenager is a smart investment in their future. It provides a sense of independence, responsibility, and connection with friends and family. I believe that my teenaged friend deserves to receive a phone to help them navigate this exciting and challenging time in their lives.
+
+fit in with peers
+
+school
 
